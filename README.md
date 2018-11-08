@@ -8,7 +8,7 @@ Close the gates, oh fuck your face, oh no, you can't escape
 Envelope the straight up tone, feel the space you can't control
 Shutdown
 
-Nervous breakup, cast it out, 
+Nervous breakup, cast it out,   
 flip, crash and treat the silent waves 
 silo enemy as is your markup 
 counting all the days
